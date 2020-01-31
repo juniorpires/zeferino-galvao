@@ -49,6 +49,8 @@ Zeferino ainda escreveu:
 
 "A Sorbona celeste";
 
+Eulâmpio Corvo (1909)
+
 "Na dobra da mortalha", poemeto, e
 
 "Dicionário Biográfico Universal", em vários volumes que foram publicados a partir de1924, no Recife, pela Tipografia do Jornal do Commercio.
